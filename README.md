@@ -1,4 +1,4 @@
-### Hi there 👋, AlbayEmre
+### Hi,I am 👋, YunusEmre Albayrak
 #### Software Enginering 
 ![Software Enginering ](https://r.resimlink.com/FJH9RSZET.png)
 
